@@ -1,0 +1,2 @@
+# Notes
+The second brain
